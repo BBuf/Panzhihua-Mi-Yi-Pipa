@@ -14,7 +14,7 @@
 
 # 2026年的一些真实用户好评
 
-![](https://files.mdnice.com/user/59/7df2097c-200f-44a3-ace9-bbbe25fa6bde.png)
+![](https://files.mdnice.com/user/179154/f6403cd5-6a6d-4d05-ba92-9802d9e6ad84.png)
 
 ![](https://files.mdnice.com/user/59/921b75bc-c4f8-4b50-94e3-7ea67c510af3.png)
 
